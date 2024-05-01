@@ -7,4 +7,4 @@ THE LINK TO THE PHOTOS
 https://docs.google.com/document/d/10bVtElv0Bycf0ZCtcS_Nw-BJWJkiNLHoxRR58mKZDZo/edit?usp=sharing
 
 THE LINK TO THE VIDEO
-https://drive.google.com/file/d/1egz6qLAudwkoAnAnyfQYE2ITuiAH6wan/view?usp=drive_link
+https://drive.google.com/file/d/1uGjmX9sRQlRmb8_2Qy3Gzk1_i9IDpX5n/view?usp=sharing
